@@ -9,3 +9,7 @@ Perdu dans un royaume mystérieux, Eldor découvre un monde où les majestueuses
 Déterminé à honorer la prophétie, <span style="color: #26B260">**Eldor**</span> se plongea dans les écrits anciens, cherchant des indices cachés dans les rouleaux antiques. Chaque ligne semblait murmurer un secret, chaque symbole, une piste vers la solution.
 
 À chaque pas dans ce monde étrange, il ressentait le poids de la responsabilité, mais sa détermination demeurait inébranlable. La quête pour restaurer l'équilibre entre les dimensions avait commencé, et Eldor était prêt à affronter les ténèbres pour ramener la lumière.
+
+Il partit explorer ce monde nouveau à la recherche de connaissances plus avancées afin de mettre un terme à ce chaos dimensionel. C'est durant cette exploration qu'il fit la connaissance de Merlin, ce dernier était un magicien expérimenté qui suivait un groupe de chevaliers à la recherche d'une relique ancienne appelée **Graal**.
+
+Merlin apprit à <span style="color: #26B260">**Eldor**</span> les secrets des dimensions et confia à ce dernier des livres plus complets sur le sujet afin d'approfondir ses compétences en la matière. La route était encore longue, mais Merlin avait bien aidé notre jeune magicien avec tous ses sages conseils.
